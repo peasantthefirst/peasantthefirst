@@ -1,4 +1,4 @@
-- Hey there, I'm peasantthefirst. You can call me peasant. I'm a 14 y/o genderfluid person who loves science.
+- Hey there, I'm peasantthefirst. You can call me peasant. I'm a 14 y/o genderfluid child who loves science.
 
 - I'm interested in Java, Python, C and learning in general. I do a lot of rpi projects.
 
@@ -6,5 +6,6 @@
 
 - I don't really do teamwork, but you can ping me on Discord if you want to collab with me.
 
-- My discord's peasant#5569. I look forward to meeting you.
-
+Discord: discord.com/users/899976608822231091
+Insagram: @peasantthefirst
+Twitter: @emopeasant226
