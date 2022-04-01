@@ -9,3 +9,4 @@
 Discord: discord.com/users/899976608822231091
 Insagram: @peasantthefirst
 Twitter: @emopeasant226
+Carrd: https://peaandsuffering.carrd.co/
