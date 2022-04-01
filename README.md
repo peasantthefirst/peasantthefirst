@@ -7,6 +7,9 @@
 - I don't really do teamwork, but you can ping me on Discord if you want to collab with me.
 
 Discord: discord.com/users/899976608822231091
+
 Insagram: @peasantthefirst
+
 Twitter: @emopeasant226
+
 Carrd: https://peaandsuffering.carrd.co/
